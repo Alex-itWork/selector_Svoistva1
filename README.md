@@ -1,0 +1,1 @@
+# selector_Svoistva1
